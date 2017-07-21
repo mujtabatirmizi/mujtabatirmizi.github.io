@@ -1,1 +1,0 @@
-# mujtabatirmizi.github.io
